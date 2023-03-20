@@ -7,3 +7,7 @@
 - 📫 How to reach me: mail me at mahanth256305@gmail.com call me at +91 6304608757 
 - 😄 Pronouns: He/Him
 - ⚡ Intrests: Development and Photography
+- ➡️C/C++/Python 
+- ➡️code enthusiast 
+- ➡️problem solving 
+- ➡️web developer/frontend
