@@ -4,6 +4,6 @@
 - 🏫 sophomore at IIT Kharagpur
 - 🌱 I’m currently learning software development and competitiv programming
 - 👯 I’m looking to collaborate on android development and web development.
-- 📫 How to reach me: mail me at mahanth256305@gmail.com call me at +91 63046 08757 
+- 📫 How to reach me: mail me at mahanth256305@gmail.com call me at +91 6304608757 
 - 😄 Pronouns: He/Him
 - ⚡ Intrests: Development and Photography
